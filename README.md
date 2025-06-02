@@ -1,2 +1,1 @@
-# pre-judging-someone-will-not-bring-your-self-up
-pre-judging someone will not bring your self up
+prejudging someone will not bring yourself up
